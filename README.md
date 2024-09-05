@@ -1,5 +1,4 @@
-## Hi there 👋
-
+## Hi there 👋 I am tharusha dinuth this is my pro account 
 <!--
 **Tharushadinuth/Tharushadinuth** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
