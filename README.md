@@ -1,4 +1,4 @@
-## Hi there 👋 I am tharusha dinuth this is my pro account 
+## Hi there 👋 I am tharusha dinuth this is my pro account  checkout @Tharusha-2000 is my real github account 
 <!--
 **Tharushadinuth/Tharushadinuth** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
